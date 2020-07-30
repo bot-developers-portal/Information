@@ -1,1 +1,1 @@
-[test](mailto:support@botdevportal.cf)
+[test](mailto:ardankr2019@naver.com)
